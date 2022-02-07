@@ -1,0 +1,1 @@
+# GEOG370Summer2020c
